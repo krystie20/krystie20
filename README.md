@@ -24,7 +24,7 @@
 ### 📬 Connect with Me
 
 [![LinkedIn](https://img.shields.io/badge/-LinkedIn-blue?logo=linkedin&style=flat-square)](https://www.linkedin.com/in/keerthana-ragupathy-a247112a0)  
-📩 Email: keerthanaragupathy@gmail.com
+📩 Email: keerthanaragupathy9@gmail.com
 
 ---
 
